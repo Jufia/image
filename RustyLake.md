@@ -72,4 +72,31 @@ WSQAZ天堂岛祖母
 触发回忆，Caroline微笑着拿着花
 ![image](https://github.com/Jufia/image/assets/122464335/978b0d59-d377-46d1-a0fd-2d108576c484)
 
+**第四灾 蝇灾**  
+在塔里，Caroline提示“不要让他们使用我的记忆”
+![image](https://github.com/Jufia/image/assets/122464335/06fe0fd7-3059-425b-b1ac-3b1e0e17e200)
+皮皮弟弟的究极形态出现了，他还有专属BGM
+![image](https://github.com/Jufia/image/assets/122464335/a88428f0-7c58-46a7-9253-74eee9bfa51a)
+皮皮弟弟飞出来后，所有动物都躲起来了  
+兔子躲在洞里
+![image](https://github.com/Jufia/image/assets/122464335/aef8e720-f2e5-4f1c-84e9-145b33ed140b)
+妹妹躲在盒子里：“恐惧并没有使我盲目”
+![image](https://github.com/Jufia/image/assets/122464335/3cce9862-9855-4633-a0d0-c1cce196dbd7)
+叔叔躲在地洞里
+![image](https://github.com/Jufia/image/assets/122464335/953f3ec5-227e-4946-aa41-91678efc62c3)
+奶奶躲在锅里，还得加热才会露脸（）奶奶让我去找我的哥哥，难道蝇灾的玩家身份是皮皮弟弟？
+![image](https://github.com/Jufia/image/assets/122464335/e25605cd-3afb-44c3-a278-7b352aa1b348)
+
+
+原来是苍蝇形态的皮皮弟弟会出来补营养
+![image](https://github.com/Jufia/image/assets/122464335/85492737-f662-4321-a323-72fc0c979796)
+![image](https://github.com/Jufia/image/assets/122464335/71ab6142-9af4-4968-9ca8-b237f5bae0bc)
+![image](https://github.com/Jufia/image/assets/122464335/bc433aba-ca05-4887-8532-93a92b2eaf25)
+![image](https://github.com/Jufia/image/assets/122464335/d897cbd5-f136-4850-bbf0-e125317d443f)
+![image](https://github.com/Jufia/image/assets/122464335/d21304e6-017b-4469-be86-8eb9c5b4a374)
+![image](https://github.com/Jufia/image/assets/122464335/d7add664-f4eb-45ed-bd3f-54baa2a36eb9)
+
+
+
+
 
