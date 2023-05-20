@@ -91,11 +91,46 @@ WSQAZ天堂岛祖母
 原来是苍蝇形态的皮皮弟弟会出来补营养
 ![image](https://github.com/Jufia/image/assets/122464335/85492737-f662-4321-a323-72fc0c979796)
 ![image](https://github.com/Jufia/image/assets/122464335/71ab6142-9af4-4968-9ca8-b237f5bae0bc)
+![image](https://github.com/Jufia/image/assets/122464335/974bd761-80a8-49fb-8a17-b4ae3e03c91a)
 ![image](https://github.com/Jufia/image/assets/122464335/bc433aba-ca05-4887-8532-93a92b2eaf25)
 ![image](https://github.com/Jufia/image/assets/122464335/d897cbd5-f136-4850-bbf0-e125317d443f)
 ![image](https://github.com/Jufia/image/assets/122464335/d21304e6-017b-4469-be86-8eb9c5b4a374)
 ![image](https://github.com/Jufia/image/assets/122464335/d7add664-f4eb-45ed-bd3f-54baa2a36eb9)
 
+在皮皮弟弟到处吃动物的时候，爸爸躲在密室里孤芳自赏
+![image](https://github.com/Jufia/image/assets/122464335/9987c085-5015-4ad1-97ac-eee457d50543)
+密室里的书：
+page1 绣湖的光辉之日终将来临  
+page2 将会有一人遇见死亡，另一人获得启发  
+page3 启发 被选择的人  
+page4 长生不老药  
+page5 记忆的提取  
+page6 饿鬼 平衡你前世中的物质
+page7 我们的记忆属于绣湖
+page8 被选择的人
+![image](https://github.com/Jufia/image/assets/122464335/55e0248a-203c-41e6-8562-4de735e9402f)
+![image](https://github.com/Jufia/image/assets/122464335/643a86bc-f986-45a7-9493-393a1e48c54f)
+![image](https://github.com/Jufia/image/assets/122464335/f7a29775-f929-4908-b033-301e480fa52f)
+![image](https://github.com/Jufia/image/assets/122464335/42c1da07-fe2c-4059-92fd-ec7c887ef96e)
+
+![image](https://github.com/Jufia/image/assets/122464335/2bb889e4-b8b2-4b51-9084-b5e435eaab1b)
+Caroline应该是发现了绣湖的秘密，一直没有将自己的记忆交出来，并且有在阻止Jakob找到自己的记忆。这里猜测把Jackob找回天堂岛一是除灾，二是找到Caroline的记忆，三是为了让Jakob献祭自己。
+![image](https://github.com/Jufia/image/assets/122464335/98f0b248-92bb-4891-be55-e6888a18e0e6)
+然后父亲被杀死了....
+![image](https://github.com/Jufia/image/assets/122464335/036df112-f0cd-42db-9c0d-91cd8a0c9580)
+触发Caroline的回忆
+![image](https://github.com/Jufia/image/assets/122464335/0ee2fd23-1e27-49b8-a9e2-d9510c69c786)
+
+**第五灾 疫灾**
+牛一直病着，奶奶说：我的儿子总是饿
+于是要做“绣湖汉堡”（之后可能会用上）
+![image](https://github.com/Jufia/image/assets/122464335/df1f9380-793f-48d2-b863-b7e6dabb0d06)
+脑袋被刺穿了的爸爸还活着，只是头有点疼
+![image](https://github.com/Jufia/image/assets/122464335/1b013667-2a30-4e0e-b4f2-23420b210ff5)
+叔叔吃完就拉稀了，然后把从爸爸那卸下来的绷带给他作厕纸，得到黑方块，触发记忆
+![image](https://github.com/Jufia/image/assets/122464335/5424f243-5f85-4e5b-9c3b-eece2b4e7888)
+出来后发现叔叔晕倒在地上
+![image](https://github.com/Jufia/image/assets/122464335/e4396429-2039-4d8a-9953-45f78404e584)
 
 
 
